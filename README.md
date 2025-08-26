@@ -1,1 +1,1 @@
-# D-n-
+# từ uppdet code
